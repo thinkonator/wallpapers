@@ -1,4 +1,4 @@
 # wallpapers
 
-Collection of anime wallpapers.
-All wallpapers are using the .png format.
+Collection of anime wallpapers. [NSFW included]
+All wallpapers are under the .png format.
